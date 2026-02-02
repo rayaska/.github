@@ -12,5 +12,6 @@ We are code while thinking about how universe works🌌 <br>
 Focusing on tech and education fields <br>
 #CelebratingJoy then #DeployWithHeart❤️
 
+Website: https://www.rayaska.com <br>
 Instagram: https://instagram.com/rayaskatech <br>
-Website: https://www.rayaska.com
+LinkedIn: https://linkedin.com/company/rayaska 
