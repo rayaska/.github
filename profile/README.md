@@ -10,7 +10,7 @@ Fokus di teknologi dan edukasi <br>
 
 We are code while thinking about how universe works🌌 <br>
 Focusing on tech and education fields <br>
-#CelebatingJoy then #DeployWithHeart❤️
+#CelebratingJoy then #DeployWithHeart❤️
 
 Instagram: https://instagram.com/rayaskatech <br>
 Website: https://www.rayaska.com
